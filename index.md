@@ -6,14 +6,18 @@ Please find her cv here.
 
 
 
+
 ### Education
+
 BA in English Literature and Linguistics, Tsinghua University, Beijing, 2015 - 2019
-    Graduate with Honor
+- Graduate with Honor
 
 MA in International and Regional Studies, University of Michigan, Ann Arbor, 2019 - 2021
 
 
+
 ### Publication
+
 
 
 
