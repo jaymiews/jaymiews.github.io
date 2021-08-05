@@ -20,7 +20,6 @@ MA in International and Regional Studies, University of Michigan, Ann Arbor, 201
 
 
 
-
 ### Random Facts about Jaymie
 - Freelance translator
 
