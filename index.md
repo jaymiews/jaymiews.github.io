@@ -3,7 +3,7 @@
 Jaymie Song is a rising first-year PhD student in Political Sciences at Tsinghua University, Beijing.
 
 
-
+<br/><br/>
 
 
 ### Education
@@ -11,13 +11,14 @@ Jaymie Song is a rising first-year PhD student in Political Sciences at Tsinghua
 BA in English Literature and Linguistics, Tsinghua University, Beijing, 2015 - 2019
 - Graduate with Honor
 
+<br/>
 
 MA in International and Regional Studies, University of Michigan, Ann Arbor, 2019 - 2021
-- Full tuition waiver
+- LRCCS (Lieberthal-Rogel Center for Chinese Studies) Academic Year Fellowship
+- LRCCS Summer Fellowship
 
 
-
-
+<br/><br/>
 
 
 ### Random Facts about Jaymie
