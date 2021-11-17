@@ -1,6 +1,6 @@
 ## Welcome to Jaymie's
 
-Jaymie Song is a rising first-year PhD student in Political Science at Tsinghua University, Beijing.
+Jaymie Song is a first-year PhD student in Political Science at Tsinghua University, Beijing.
 
 
 <br/>
