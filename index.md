@@ -1,6 +1,6 @@
 ## Welcome to Jaymie's
 
-Jaymie Song is a first-year PhD student in Political Science at Tsinghua University, Beijing.
+Jaymie Wenjia Song is a first-year PhD student in Political Science at Tsinghua University, Beijing.
 
 
 <br/>
@@ -14,8 +14,8 @@ BA in English Literature and Linguistics, Tsinghua University, Beijing, 2015 - 2
 <br/>
 
 MA in International and Regional Studies, University of Michigan, Ann Arbor, 2019 - 2021
-- LRCCS (Lieberthal-Rogel Center for Chinese Studies) Academic Year Fellowship
-- LRCCS Summer Fellowship
+- LRCCS (Lieberthal-Rogel Center for Chinese Studies) Academic Year Fellowship, 2019 - 2021
+- LRCCS Summer Fellowship, 2020.6
 
 
 <br/>
