@@ -23,11 +23,11 @@ MA in International and Regional Studies, University of Michigan, Ann Arbor, 201
 ### Conference Panel Presentation
 
 <em>Discursive Power Dynamics and Identity Construction: Case Studies of Conversations in
-Beijing Vegetable Markets</em>, <strong>Third International Conference on Sociolinguistics</strong>, Prague, Czech Republic. (postponed to summer 2022 due to COVID-19)
+Beijing Vegetable Markets</em>, Third International Conference on Sociolinguistics, Prague, Czech Republic. (postponed to summer 2022 due to COVID-19)
 
 <br/>
 
-<em>Winning Impossible Games?</em>, <strong>70th Midwest Conference on Asian Affairs</strong>, October 29-31, 2021, Indiana University Bloomington, ID.
+<em>Winning Impossible Games?</em>, 70th Midwest Conference on Asian Affairs, October 29-31, 2021, Indiana University Bloomington, ID.
 
 
 <br/>
