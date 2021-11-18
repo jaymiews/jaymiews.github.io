@@ -1,6 +1,6 @@
-## Welcome to Jaymie's
+## Welcome :D
 
-Jaymie Wenjia Song is a first-year PhD student in Political Science at Tsinghua University, Beijing.
+Jaymie (Wenjia) Song is a first-year PhD student in Political Science at Tsinghua University, Beijing.
 
 
 <br/>
