@@ -27,7 +27,7 @@ Beijing Vegetable Markets</em>, Third International Conference on Sociolinguisti
 
 <br/>
 
-<em>Winning Impossible Games?</em>, 70th Midwest Conference on Asian Affairs, October 29-31, 2021, Indiana University Bloomington, ID.
+<em>Winning Impossible Games?</em>, 70th Midwest Conference on Asian Affairs, October 29-31, 2021, Indiana University Bloomington, ID (REMOTE).
 
 
 <br/>
