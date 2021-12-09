@@ -32,4 +32,5 @@ Beijing Vegetable Markets</em>, Third International Conference on Sociolinguisti
 
 ### Random Facts about Jaymie
 - Freelance translator
+- Moombahton + Tropical House lover
 
