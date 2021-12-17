@@ -19,6 +19,9 @@ MA in International and Regional Studies, University of Michigan, Ann Arbor, 201
 
 <br/>
 
+### Publication
+<em>Song, W.-J. and J.-L. Zhang, trans., A. Neuwirth, "Quranic Studies and Historical-Critical Philology: The Quran's Staging, Penetrating and Eclipsing of Biblical Tradition" in W.-R. Shen, S. Yao, What is Philology? The Methodology and Practice of Modern Humanities, Shanghai: Shanghai Classics Publishing House, 2021.
+
 ### Conference Panel Presentation
 
 <em>Discursive Power Dynamics and Identity Construction: Case Studies of Conversations in
