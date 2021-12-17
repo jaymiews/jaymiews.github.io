@@ -16,7 +16,6 @@ MA in International and Regional Studies, University of Michigan, Ann Arbor, 201
 - LRCCS (Lieberthal-Rogel Center for Chinese Studies) Academic Year Fellowship, 2019 - 2021
 - LRCCS Summer Fellowship, 2020.6
 
-
 <br/>
 
 ### Publication
