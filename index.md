@@ -1,6 +1,6 @@
 ## Welcome :D
 
-Jaymie (Wenjia) Song is a first-year PhD student in Political Science at Tsinghua University, Beijing. Her research interest lies in state-business relationship and language politics.
+Jaymie (Wenjia) Song is a first-year PhD student in Political Science at Tsinghua University, Beijing. Her research interest lies in state-business relationship.
 
 
 <br/>
@@ -12,7 +12,7 @@ BA in English Literature and Linguistics, Tsinghua University, Beijing, 2015 - 2
 - Graduate with Honor
 
 <br/>
-MA in International and Regional Studies, University of Michigan, Ann Arbor, 2019 - 2021
+MA in International and Regional Studies (specialization: China Politics), University of Michigan, Ann Arbor, 2019 - 2021
 - LRCCS (Lieberthal-Rogel Center for Chinese Studies) Academic Year Fellowship, 2019 - 2021
 
 <br/>
